@@ -43,7 +43,7 @@
 # `А что будет если нажать на нос кошке?....`
 
 [![клик по картинке](https://i.pinimg.com/736x/1b/32/3a/1b323ad671ca8f893ab496ff735e8df0.jpg)](https://img.magnific.com/premium-photo/cute-scottish-fold-cat-is-sitting-by-table-with-laptop-indoors_146671-85527.jpg?semt=ais_hybrid&w=740) <-- тык
-
+#### Кратко об информации:
 |Порода|Живут|
 |-----:|:--------:|
 |Корат   |Таиланд |  
