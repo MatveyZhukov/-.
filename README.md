@@ -31,9 +31,9 @@
 - ## **Кхао-мани**
 
 ![Альт текст](https://lh7-us.googleusercontent.com/sWEZTMh-kg4fVWxOkgEypRp1dT12cOGVycobqTCPBeVxBagILpq1MNNbChyXdO5QsBSFMv2S5Mv5NJSGMyKNcw_pbsoBPz_TiahmsE69Zex6J6K41bNUVWSHHet8CkOPQL4XHcaLoItJS2GEKqz_XG8)
-[Ссылочный стиль][1]
+[Что будет если нажать сюда?][1]
 
-[1]: https://lh7-us.googleusercontent.com/sWEZTMh-kg4fVWxOkgEypRp1dT12cOGVycobqTCPBeVxBagILpq1MNNbChyXdO5QsBSFMv2S5Mv5NJSGMyKNcw_pbsoBPz_TiahmsE69Zex6J6K41bNUVWSHHet8CkOPQL4XHcaLoItJS2GEKqz_XG8
+[1]: https://img.magnific.com/premium-photo/cute-scottish-fold-cat-is-sitting-by-table-with-laptop-indoors_146671-85527.jpg?semt=ais_hybrid&w=740
 ### *Еще одна тайская порода, которая долго считалась собственностью королевской семьи, и даже вывоз ее из Таиланда был запрещен. В переводе с местного языка «кхао мани» означает «белый драгоценный камень»: такое название отлично подходит этим стройным кошкам с блестящей белоснежной шерстью и глазами разных оттенков (чаще всего — желтого и голубого).*
 # Что такое кошка?
 >  Домашнее млекопитающее из семейства кошачьих (научное название Felis catus), хищник, который часто живёт рядом с человеком. Кошки отлично охотятся (например, на грызунов), у них развиты слух, зрение и ловкость.
